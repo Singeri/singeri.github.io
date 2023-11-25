@@ -1,1 +1,1 @@
-Gwen you are gay
+Kami is so gayish
